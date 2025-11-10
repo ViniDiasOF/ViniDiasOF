@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Vinícius Dias (he/him)
-- 📫 reach me @ itsvinniedias on instagram
+- 📫 reach me @vinnieisdead on instagram
 - 🌐 🇧🇷 | 🇺🇸 | 🇫🇷 
